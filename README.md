@@ -1,4 +1,4 @@
-### Hi there 👋
+### 👋 SEJASTZTOK ÉN VAGIJOK A CSHETHC GÉPÉTÍ 👋
 
 <!--
 **ChatGeePeeTea/ChatGeePeeTea** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
